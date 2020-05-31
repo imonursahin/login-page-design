@@ -1,1 +1,1 @@
-<img src="https://i.hizliresim.com/UGH4Sz.png"/>
+<img src="https://imgur.com/45LIkjb.png.png"/>
